@@ -6,6 +6,7 @@ Logic is what logic does.
 
 
 
+![image](https://github.com/user-attachments/assets/cbc7243c-9122-4c40-9c0e-536a0c2959bd)
 
 
 
